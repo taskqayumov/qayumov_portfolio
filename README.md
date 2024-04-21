@@ -1,1 +1,0 @@
-# qayumov_portfolio
